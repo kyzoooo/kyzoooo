@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @kyzoooo
+- 🌱 I’m currently learning css, java
+- 💞️ I’m looking to collaborate on FiveM
+- 📫 How to reach me ? dm .kyzoo#9516 on discord
